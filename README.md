@@ -1,5 +1,4 @@
-# Shree_narayan_dhoopsali
-My work for this store
+# શ્રી નારાયણ ધૂપ સળી
 
 <a href="https://maps.app.goo.gl/szazuaVhjbbhztHp8" target="_blank">View Our Store on Google Maps</a>
 
